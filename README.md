@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Plojoazee
-- 👀 I’m interested in codahe and script js html and css
+- 👀 I’m interested in codage and script js html and css
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on create a gale video
 - 📫 How to reach me: charlely.debroutelle1@gmail.com
